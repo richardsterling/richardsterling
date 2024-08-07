@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
- $\color{#d9d8e3}{\textbf{ julia or mae she him prns lesbian 14teen}}$
+ $\color{#d9d8e3}{\textbf{ julia or mae she him prns lesbian 14teen malaysian}}$
 </p>
 
 
