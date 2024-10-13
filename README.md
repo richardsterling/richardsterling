@@ -2,7 +2,7 @@
 
   
  <p align="center">
-<img src="https://i.pinimg.com/736x/db/76/a8/db76a859e7cf448e9ff4e2cface1b458.jpg" data-canonical-src="(https://files.catbox.moe/2pyikv.png)"  />
+<img src="https://i.pinimg.com/736x/db/76/a8/db76a859e7cf448e9ff4e2cface1b458.jpg" data-canonical-src="(https://files.catbox.moe/2pyikv.png)" width = 250 />
 </p>
 
 <p align="center">
