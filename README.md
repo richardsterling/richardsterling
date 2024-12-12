@@ -9,7 +9,7 @@
   </p>
 <div align="center">
 
-<b> [easy2read](https://rentry.co/fishmael) [strawpage](https://gachikoi.straw.page/) [atabook](https://kurode.atabook.org/)ㅤ</b>
+<b> [rentry](https://rentry.co/yuridivye)[easy2read](https://rentry.co/fishmael) [strawpage](https://gachikoi.straw.page/) [atabook](https://kurode.atabook.org/)ㅤ</b>
 
 <p align="center">
   <img src="https://file.garden/Zy4Qac38k0TT_wEe/Screenshot%202024-12-06%20022635.png">
